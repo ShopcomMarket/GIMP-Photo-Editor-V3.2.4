@@ -12,7 +12,7 @@ https://www.shopcom.tn/product/gimp-photo-editor-v3-2-4/
 Product Price : Free
 
 Payment :
-https://www.shopcom.tn/payment
+https://www.shopcom.tn/payments
 
 Website :
 https://www.shopcom.tn
